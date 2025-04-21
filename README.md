@@ -1,6 +1,5 @@
 - ✩°｡⋆⸜ 🎧✮💿 :Hihihi, I’m Meenu @CyberWebs-SynthWave
 - ⟡I’m interested in virtual/ar development.
-- ⟡I’m currently learning RPA.
 - ⟡I’m looking to collaborate on vr applications.
 - ⟡How to reach me.
 - ⟡Pronouns: she/they.
