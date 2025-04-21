@@ -1,7 +1,7 @@
 - ✩°｡⋆⸜ 🎧✮💿 :Hihihi, I’m Meenu @CyberWebs-SynthWave
 - ⟡I’m interested in virtual/ar development.
 - ⟡I’m looking to collaborate on vr applications.
-- ⟡How to reach me.
+- ⟡How to reach me:Lmeenakshi173@gmail.com
 - ⟡Pronouns: she/they.
 - ⟡Fun fact: I create digital art too.
 
